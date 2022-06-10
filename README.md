@@ -1,9 +1,11 @@
 ## ``The Nova Purge Announcement``
 
 •  ``This announcement is regarding Nova-Gui & Nova-Stand & Nova-Stand-Gui.``
+
 •  ``We have decided that we will be releasing multitude of Icxy's & Killerhood's products due to multitude of reasons :``
 
 •  ``Audio logging without any consent & personal benefits.``
+
 •  ``Skidding, they have been confirmed numerous times to steal from other people's products & stealing people's sources & remaking multitude of products and features without any consent from any of their authors for their own benefits.``
 
 • ``I'm speaking for all of the script creators who have seen & have experienced the unfairness of their actions.``
